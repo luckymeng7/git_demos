@@ -19,7 +19,7 @@ Iciar Fernandez Boyano: Fav package is here()
 
 Sihaoyu Gao: lol
 
-Jake Gerlofs: 
+Jake Gerlofs: :D
 
 Daniel Hadley: 
 
