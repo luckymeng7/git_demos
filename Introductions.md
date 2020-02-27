@@ -29,7 +29,7 @@ Nima Jamshidi: I love playing squash!
 
 Martin Keung: 
 
-Almas Khan: 
+Almas Khan: I like the colour green.
 
 Anh Le: Hi! Made a change.
 
