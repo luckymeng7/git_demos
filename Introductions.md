@@ -47,7 +47,7 @@ Hannah Mcsorley:
 
 Lucy Mosquera: 
 
-Stanley Nam: 
+Stanley Nam: Yay. Here I am!! 
 
 Marion Nyberg: 
 
