@@ -7,7 +7,7 @@ Add one sentence beside your name - it can be your favourite music lyric, a fact
 
 ## STAT 547 class
 
-Yulia Egorova:
+Yulia Egorova:I made a change!!! And even more
 
 Elyse Adamic: 
 
