@@ -29,7 +29,7 @@ Nima Jamshidi:
 
 Martin Keung: 
 
-Almas Khan: 
+Almas Khan: I like the colour green.
 
 Anh Le: 
 
