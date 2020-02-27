@@ -25,7 +25,7 @@ Daniel Hadley:
 
 Rachel Han: 
 
-Nima Jamshidi: 
+Nima Jamshidi: I love playing squash!
 
 Martin Keung: 
 
