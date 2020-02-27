@@ -64,3 +64,5 @@ Kristina Wright:
 Qi Yang: 
 
 Haohui Zhong: 
+
+Firas: I like the raptors a lot - Raptors vs. Bucks Eastern COnference FInals   
