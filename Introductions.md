@@ -57,7 +57,7 @@ Farnaz Sahragard:
 
 Denitsa Vasileva: 
 
-Eve Wicksteed: 
+Eve Wicksteed: it's rainy today
 
 Kristina Wright: I like snacking
 
