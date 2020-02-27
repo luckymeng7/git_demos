@@ -43,7 +43,7 @@ Racquelle Mangahas:
 
 Michael Marin: 
 
-Hannah Mcsorley: 
+Hannah McSorley: Go Raptors 
 
 Lucy Mosquera: 
 
