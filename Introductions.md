@@ -7,6 +7,8 @@ Add one sentence beside your name - it can be your favourite music lyric, a fact
 
 ## STAT 547 class
 
+Yulia Egorova: I made a (bad- but good) change!!!
+
 Elyse Adamic: 
 
 Saelin Bjornson: 
