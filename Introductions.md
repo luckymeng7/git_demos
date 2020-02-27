@@ -59,7 +59,7 @@ Denitsa Vasileva:
 
 Eve Wicksteed: 
 
-Kristina Wright: 
+Kristina Wright: I like snacking
 
 Qi Yang: 
 
