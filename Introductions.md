@@ -49,7 +49,7 @@ Lucy Mosquera:
 
 Stanley Nam: Yay. Here I am!! 
 
-Marion Nyberg: 
+Marion Nyberg: Hi!
 
 Carleena Ortega: carleena ortega :D
 
