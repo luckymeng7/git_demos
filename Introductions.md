@@ -11,56 +11,58 @@ Yulia Egorova:I made a change!!! And even more
 
 Elyse Adamic: 
 
-Saelin Bjornson: 
+Saelin Bjornson: Hello
 
-Margot Chen: 
+Margot Chen: add this change.
 
-Iciar Fernandez Boyano: 
+Iciar Fernandez Boyano: Fav package is here()
 
-Sihaoyu Gao: 
+Sihaoyu Gao: lol
 
-Jake Gerlofs: 
+Jake Gerlofs: :D
 
 Daniel Hadley: 
 
 Rachel Han: 
 
-Nima Jamshidi: 
+Nima Jamshidi: I love playing squash!
 
 Martin Keung: 
 
-Almas Khan: 
+Almas Khan: I like the colour green.
 
-Anh Le: 
+Anh Le: Hi! Made a change.
 
-Xuemeng Li: 
+Xuemeng Li: I'm trying to commit a change
 
 Diana Lin: 
 
-Jimmy Liu: 
+Jimmy Liu: HELLO WORLD
 
 Racquelle Mangahas: 
 
 Michael Marin: 
 
-Hannah Mcsorley: 
+Hannah McSorley: Go Raptors 
 
 Lucy Mosquera: 
 
-Stanley Nam: 
+Stanley Nam: Yay. Here I am!! 
 
-Marion Nyberg: 
+Marion Nyberg: Hi!
 
-Carleena Ortega: 
+Carleena Ortega: carleena ortega :D
 
 Farnaz Sahragard: 
 
 Denitsa Vasileva: 
 
-Eve Wicksteed: 
+Eve Wicksteed: it's rainy today
 
-Kristina Wright: 
+Kristina Wright: I like snacking
 
-Qi Yang: 
+Qi Yang: Trying to figure out what's happened
 
-Haohui Zhong: 
+Haohui Zhong: creating new changes
+
+Firas: I like the raptors a lot - Raptors vs. Bucks Eastern COnference FInals 
